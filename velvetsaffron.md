@@ -1,821 +1,821 @@
 # AI Builders Digest 今日热点快报
 
-*报告生成时间：2026年07月09日21时59分49秒*
+*报告生成时间：2026年07月13日00时47分26秒*
 
 ---
 
 ## 一、国内时政
 
-### 青海春天称将配合证监会调查，同时启动内部自查整改工作
+### 一图了解丨2024年全国两会这些看点值得关注
 
-来源：<code>map.read.jbttgb.cn/Article/details/15964.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/604273.shtml</code>
 
-### 侵华日军731部队罪证新增大量史料，首次向公众全面公开
+### 中央纪委派人到会指导！中央开会后，公安部部署，点名“老虎”孙力军
 
-来源：<code>map.read.jbttgb.cn/Article/details/9370.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/1276.shtml</code>
 
-### 小米汽车押注性价比策略，能否在激烈市场竞争中成功突围
+### 高考填志愿十问十答，愿你进入“梦中情校”
 
-来源：<code>map.read.jbttgb.cn/Article/details/81003.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/545986.shtml</code>
 
-### 美对台提供8万套单兵装备细节曝光，台海局势再引关注
+### 央行决定下调金融机构存款准备金率和支农支小再贷款、再贴现利率
 
-来源：<code>map.read.clwdix.cn/Article/details/6082166.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/445566.shtml</code>
 
-### 云南镇雄山体滑坡致34人遇难，仍有10人失联待寻
+### 山东省委常委、秘书长张海波，已任职山东省政府
 
-来源：<code>map.read.jbttgb.cn/Article/details/4056.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/0934710.shtml</code>
 
-### 国家统计局发布数据，3月猪肉价格同比下滑6.7%
+### 20城试点换发补发出入境证件全程网办
 
-来源：<code>map.read.clwdix.cn/Article/details/1484.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/9895.shtml</code>
 
-### 政协委员蒙曼建议取消公务员招考35岁年龄上限
+### 中华人民共和国政府关于北部湾北部领海基线的声明
 
-来源：<code>map.read.jbttgb.cn/Article/details/192670.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/5777784.shtml</code>
 
-### 中东部将迎大范围雨雪天气，春运交通或受明显影响
+### 26个万亿GDP城市一季报：省会城市为何整体疲软
 
-来源：<code>map.read.jbttgb.cn/Article/details/836225.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/2577622.shtml</code>
 
-### 十四届全国人大二次会议会风清正务实，获各方积极评价
+### 英国就南海问题发表错误言论，我驻英使馆：提出严正交涉
 
-来源：<code>map.read.jbttgb.cn/Article/details/54316.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/8935373.shtml</code>
 
-### 海关总署说明去年1-2月大豆进口数据修正原因
+### 全国人大常委会对金融工作提了哪些意见和建议？
 
-来源：<code>map.read.jbttgb.cn/Article/details/3611194.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/5510045.shtml</code>
 
-### 国办发文后，支付宝与财付通连夜作出公开回应
+### 金融管理部门：加大保交楼金融支持 加快房地产金融供给侧改革
 
-来源：<code>map.read.jbttgb.cn/Article/details/2929278.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/358745.shtml</code>
 
-### 上汽集团3月销量达38.1万辆，同比增长8.4%
+### 黑龙江省桦南县悦城体育俱乐部负责人等已被警方控制
 
-来源：<code>map.read.jbttgb.cn/Article/details/50914.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/6444.shtml</code>
 
-### 超250万平方公里国土遭最强雨雪冰冻天气侵袭
+### 金隅集团收购居然之家10%股份 将就房地产开发业务等展开合作
 
-来源：<code>map.read.jbttgb.cn/Article/details/7227.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/984477.shtml</code>
 
-### 这些孩子如今已长大成人
+### 这些省级纪委书记由中纪委“空降”
 
-来源：<code>map.read.jbttgb.cn/Article/details/558042.shtml</code>
+来源：<code>h5.baike.rtoyg.cn/Article/310264.shtml</code>
 
-### 江苏泰州市副市长刘志明接受纪律审查和监察调查
+### 蓝白郭会谈不欢而散 台媒详细还原破局过程
 
-来源：<code>map.read.jbttgb.cn/Article/details/582253.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0210.shtml</code>
 
-### 第四批高值医用耗材集采落地，均价降幅达70%
+### 个人网贷正接入征信 未来会影响房贷么？
 
-来源：<code>map.read.clwdix.cn/Article/details/8228.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/542741.shtml</code>
 
-### 全国高温预警已持续13天，最热时段尚未到来
+### 79岁美国“功勋”间谍，出镜忏悔！曾被最高法点名
 
-来源：<code>map.read.jbttgb.cn/Article/details/03769.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1387.shtml</code>
 
-### 省委书记现场接访群众，面对面协调解决诉求
+### 吴玉良当选中国纪检监察协会会长
 
-来源：<code>map.read.clwdix.cn/Article/details/0673211.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/611794.shtml</code>
 
-### 虞爱华任安徽省委政法委书记，同时保留省委副书记职务
+### 因发放日恰逢春节假期 北京将提前发放部分社保待遇
 
-来源：<code>map.read.jbttgb.cn/Article/details/4484.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/41369.shtml</code>
 
-### 政商恳谈会上，市委书记当场表态“说到做到
+### 黑龙江省政协原党组成员、副主席曲敏被提起公诉
 
-来源：<code>map.read.clwdix.cn/Article/details/274911.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1772.shtml</code>
 
-### 外交部回应菲律宾向仁爱礁运送补给一事
+### 宁波交警通报一起交通事故：1人死亡，1人受轻微伤
 
-来源：<code>map.read.clwdix.cn/Article/details/522663.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5155876.shtml</code>
 
-### 兔年收官日A股连涨三天，证监会节前密集行动
+### 潘功胜：2024年中美货币政策“周期差”处于收敛 利于扩展我国货币政策操作的空间
 
-来源：<code>map.read.clwdix.cn/Article/details/860441.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/84525.shtml</code>
 
-### 中央督察组反馈后，省委书记赴一线督导整改落实
+### 国家安全部：只许你搞情报，不许我反间谍？
 
-来源：<code>map.read.jbttgb.cn/Article/details/1116661.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1027472.shtml</code>
 
-### 紧急提醒：在老街的中国公民请尽快撤离转移
+### 被唤醒的“第二十条”如何落到实处？
 
-来源：<code>map.read.jbttgb.cn/Article/details/9887.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/61686.shtml</code>
 
-### 聚焦2009年以来最强雨雪：峰值何时来？春运影响多大？
+### “小阳春”后百强房企销售再回落 高层重新定调去库存
 
-来源：<code>map.read.clwdix.cn/Article/details/63403.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2662.shtml</code>
 
-### 前四月全国社会物流总额增长6.1%，需求持续回暖
+### 中美关于防止中国文物非法入境美国的政府间谅解备忘录有效期顺延
 
-来源：<code>map.read.jbttgb.cn/Article/details/5676889.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8422164.shtml</code>
 
-### 中央批准方案后，尹力、陈敏尔、尹弘分别动员部署释放信号
+### 沪深交易所：优化再融资举措出台，五类情形将被限制再融资
 
-来源：<code>map.read.jbttgb.cn/Article/details/635157.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4531.shtml</code>
 
-### 普京访华欢迎仪式多项特殊安排引关注
+### 国内车市迎来降价潮，背后原因是什么？
 
-来源：<code>map.read.clwdix.cn/Article/details/7245.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/70951.shtml</code>
 
-### 中管干部张平正接受中央纪委纪律审查和监察调查
+### 中汽协：3月我国汽车销售269.4万辆 同比增长9.9%
 
-来源：<code>map.read.clwdix.cn/Article/details/5886093.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/793409.shtml</code>
 
-### 多地疾控提醒：混合感染风险上升，请民众佩戴口罩
+### 浙江杭州一房屋内4人一氧化碳中毒 已致2死2伤
 
-来源：<code>map.read.jbttgb.cn/Article/details/36920.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6137.shtml</code>
 
-### 长春龙嘉机场因天气启动大面积航班延误黄色预警
+### 东部战区新闻发言人就美“菲恩”号导弹驱逐舰过航台湾海峡发表谈话
 
-来源：<code>map.read.clwdix.cn/Article/details/519863.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0549.shtml</code>
 
-### 莫迪连任印度总理，中印关系未来走向引热议
+### 台陆委会否认明年3月开放团客赴大陆旅游，国台办回应
 
-来源：<code>map.read.jbttgb.cn/Article/details/825840.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/01170.shtml</code>
 
-### 春节首日全国主要道路交通总体平稳有序
+### 证监会重磅表态：严惩操纵市场恶意做空
 
-来源：<code>map.read.clwdix.cn/Article/details/3402258.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/26303.shtml</code>
 
-### A股收盘分化：沪指跌0.64%，创业板涨1%，脑机接口与光伏板块走强
+### 93岁南京大屠杀幸存者刘素珍去世
 
-来源：<code>map.read.clwdix.cn/Article/details/9908.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/64036.shtml</code>
 
-### 中央候补委员于吉红履新，新职务正式公布
+### 国防部：中美海上军事安全磋商机制会议筹备进展顺利
 
-来源：<code>map.read.jbttgb.cn/Article/details/38767.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8722.shtml</code>
 
-### 河南平顶山煤矿事故一名被困人员获救，仍有5人失联
+### 印度官员直说了：就是对中国的回应
 
-来源：<code>map.read.jbttgb.cn/Article/details/6843732.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/3847.shtml</code>
 
-### 标普预计中国房地产接近底部，各线城市将依次复苏
+### 新大学密集获批，高教弱省谁先逆袭？
 
-来源：<code>map.read.clwdix.cn/Article/details/07816.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/42388.shtml</code>
 
-### 湖南省委发文部署全省解放思想大讨论活动
+### 人民领袖｜一幅字里的家风传承
 
-来源：<code>map.read.jbttgb.cn/Article/details/172695.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/091888.shtml</code>
 
-### 暴雪橙色预警：内蒙古、河北、辽宁、黑龙江局部有大到暴雪
+### 太平洋岛国图瓦卢可能与台“断交”？台当局回应
 
-来源：<code>map.read.jbttgb.cn/Article/details/8667020.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/46576.shtml</code>
 
-### 马英九邀请中山大学师生组团赴台交流回访
+### 莫迪关于中印关系的这番话，耐人寻味
 
-来源：<code>map.read.clwdix.cn/Article/details/80799.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7915256.shtml</code>
 
 ## 二、民生社会
 
-### 香港山顶豪宅以8.38亿港元成交，买家为内地财团
+### 王毅南下，有重要行程
 
-来源：<code>map.read.clwdix.cn/Article/details/9736184.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/01529.shtml</code>
 
-### 高校本科专业目录更新，新增24种专业类别
+### LPR连续3月未变 专家：未来仍有下调空间
 
-来源：<code>map.read.jbttgb.cn/Article/details/9998494.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/695361.shtml</code>
 
-### 中国万亿GDP城市增至26座，释放何种信号
+### 密集来华的欧美政要，都谈到了这件事
 
-来源：<code>map.read.jbttgb.cn/Article/details/04376.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6596391.shtml</code>
 
-### 国务院部署后多省迅速统一行动落实相关工作
+### 一万多买的“情感课程”退费难？消委会呼吁出台相关行业标准
 
-来源：<code>map.read.clwdix.cn/Article/details/2347.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6987.shtml</code>
 
-### 文旅局宣布率先恢复福建居民赴马祖旅游
+### 国家统计局：2月全国城镇不含在校生的16—24岁劳动力失业率为15.3%
 
-来源：<code>map.read.clwdix.cn/Article/details/1228.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6903.shtml</code>
 
-### 现场直击：美国总统拜登与王毅举行会面
+### 2024首场寒潮来袭 气温偏低将持续至月底
 
-来源：<code>map.read.clwdix.cn/Article/details/2949.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/67544.shtml</code>
 
-### 国台办：优化调整M503航线，惠及两岸民众
+### 新疆伊犁州霍尔果斯市发生4.0级地震
 
-来源：<code>map.read.clwdix.cn/Article/details/24307.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/3672776.shtml</code>
 
-### 节日期间再落马：中央巡视组进驻后，他上月曾在会中露面
+### 三个万亿级财政重磅政策，释放什么信号？
 
-来源：<code>map.read.jbttgb.cn/Article/details/4313074.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/233630.shtml</code>
 
-### 国防部警告菲方：立即停止侵权挑衅行为
+### 耶伦来广州的第一顿饭，吃的是老字号陶陶居
 
-来源：<code>map.read.jbttgb.cn/Article/details/1611552.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/567538.shtml</code>
 
-### 江门恩平发生4.3级地震，广东省地震局启动应急响应
+### 英国大臣的“雄心”，中方回应
 
-来源：<code>map.read.jbttgb.cn/Article/details/068404.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0436.shtml</code>
 
-### 日本设置“尖阁诸岛开拓日”，中国政府提出严正交涉
+### 吴燕生、刘石泉、王长青被撤销全国政协委员资格
 
-来源：<code>map.read.jbttgb.cn/Article/details/754299.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1127.shtml</code>
 
-### 中国海警编队于5月8日在我钓鱼岛领海内执行巡航任务
+### 涉嫌开设赌场罪 斗鱼CEO陈少杰被警方逮捕
 
-来源：<code>map.read.jbttgb.cn/Article/details/193557.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6524.shtml</code>
 
-### 两家券商今日起调整融资融券负债偿还规则，即刻施行
+### 中央督察组曝光后，省委书记直奔问题现场
 
-来源：<code>map.read.jbttgb.cn/Article/details/009014.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/348792.shtml</code>
 
-### 全国两会记者会上，一位女部长亮相并回答提问
+### “骄奢淫逸，生活腐化堕落”的胡新明，被开除党籍
 
-来源：<code>map.read.jbttgb.cn/Article/details/1800584.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/237548.shtml</code>
 
-### 中小县城能否借助旅游热潮实现“流量爆棚”？
+### 明星送祝福产业链调查：每条几百元到几十万，给钱就录，风险行业也接
 
-来源：<code>map.read.clwdix.cn/Article/details/0341794.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8019.shtml</code>
 
-### 统计显示：25地发行特殊再融资债券，江苏负债率居全国末位
+### 打造“无中国”供应链？美媒：“十分困难”
 
-来源：<code>map.read.clwdix.cn/Article/details/178752.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/82558.shtml</code>
 
-### 取消“公摊面积”究竟会对房价产生多大影响？
+### 2024年开年BBA放下身段 有车型优惠24万元
 
-来源：<code>map.read.clwdix.cn/Article/details/396740.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/591256.shtml</code>
 
-### 谷歌AlphaFold 3重磅论文发表于《自然》杂志
+### 环球时报社评：中国的反倾销调查让谁心虚了？
 
-来源：<code>map.read.jbttgb.cn/Article/details/2684408.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4222902.shtml</code>
 
-### 瑙鲁议会通过决议，决定同中国恢复外交关系
+### 成都洲际航线“上新” 12小时直飞奥克兰
 
-来源：<code>map.read.clwdix.cn/Article/details/979642.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/90762.shtml</code>
 
-### 李登辉家族卷入金融诈骗案件
+### 应急管理部调度部署江苏武进一企业粉尘爆炸事故救援处置
 
-来源：<code>map.read.clwdix.cn/Article/details/7843.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1042111.shtml</code>
 
-### 解放军报评论：军队反腐越深入，战斗力的提升就越有保障
+### 丽人丽妆实控人陷离婚纠纷 被冻结1000万股公司股份
 
-来源：<code>map.read.jbttgb.cn/Article/details/366243.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/59394.shtml</code>
 
-### 青年创业导师、凤岐茶社创始人傅骞因病离世，终年44岁
+### 孩子发热伴咳嗽，什么时候需要就医？儿科专家解答
 
-来源：<code>map.read.clwdix.cn/Article/details/310989.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/606669.shtml</code>
 
-### 台湾花莲县发生5.9级地震，震源深度9公里
+### 全国少工委：关于红领巾佩戴方法的说明
 
-来源：<code>map.read.clwdix.cn/Article/details/4669992.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/139453.shtml</code>
 
-### 退休四年后，王宜林因涉嫌违纪违法被立案审查
+### 台军终于收到美国援助所谓“军备”，表态却耐人寻味
 
-来源：<code>map.read.clwdix.cn/Article/details/941470.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/48249.shtml</code>
 
-### 外逃人员李文生主动回国投案，向司法机关自首
+### 禾木积雪已超两米 新疆多地暴雪仍在继续
 
-来源：<code>map.read.clwdix.cn/Article/details/10315.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/71826.shtml</code>
 
-### 贵州遵义播州城投信托计划拟按七折兑付，投资者本金将亏损30%
+### 欧盟方面对中国经济提出关切，外交部：与事实不符
 
-来源：<code>map.read.clwdix.cn/Article/details/7263516.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/46192.shtml</code>
 
-### 时隔一百多天，中美元首再次进行重要战略沟通
+### 省委专职副书记再添一名女将！全国已有6位，她是中央委员！
 
-来源：<code>map.read.jbttgb.cn/Article/details/831809.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4036.shtml</code>
 
-### 中国发布月球背面高清影像图
+### 江苏南通如东县一室内发生天然气爆燃 造成1死4伤
 
-来源：<code>map.read.clwdix.cn/Article/details/09375.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/83657.shtml</code>
 
-### 神舟十七号乘组在轨时间已过半，太空种植的蔬菜已供航天员食用
+### 需求稳步回升 前四月全国社会物流总额同比增长6.1%
 
-来源：<code>map.read.clwdix.cn/Article/details/9779570.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4693.shtml</code>
 
-### 多位省级党委书记开展新春团拜活动，现场多处细节值得关注
+### 我国成功发射智慧天网一号01星
 
-来源：<code>map.read.jbttgb.cn/Article/details/025225.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1141090.shtml</code>
 
-### 去年盈利达10亿元，但八天内董事长和总经理相继辞职
+### 湖北省原副省长曹广晶受贿、泄露内幕信息案一审宣判
 
-来源：<code>map.read.jbttgb.cn/Article/details/9778904.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/544909.shtml</code>
 
-### 多地宣布除夕当天婚姻登记窗口正常办公
+### 我国量子网络研究取得世界突破，首次实现量子网络节点无串扰
 
-来源：<code>map.read.clwdix.cn/Article/details/6850658.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0797779.shtml</code>
 
-### 出席重要论坛后，韩正先后出访两个国家
+### 张文宏谈呼吸道疾病叠加感染问题
 
-来源：<code>map.read.clwdix.cn/Article/details/77127.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/024259.shtml</code>
 
-### iPhone降价背后：在华销量下滑24%，失去榜首位置，华为大增64%
+### 首付比例低至7.5% 山东青岛胶州市再降买房门槛
 
-来源：<code>map.read.clwdix.cn/Article/details/38935.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/73099.shtml</code>
 
-### 省级党委专职副书记再添女性成员，全国已达6人，其中一人为中央委员
+### 煤价下跌、发电量增长，电力上市公司走出盈利低谷
 
-来源：<code>map.read.jbttgb.cn/Article/details/881840.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7539.shtml</code>
 
-### 最高法原审委会委员、民一庭原庭长郑学林因严重违纪违法被开除党籍
+### 猎狐行动！中国首次从摩洛哥引渡犯罪嫌疑人
 
-来源：<code>map.read.jbttgb.cn/Article/details/3292.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/37060.shtml</code>
 
-### 潘家年接受调查，中央巡视后该央企系统多名干部已被查
+### 原文化部非物质文化遗产司司长马文辉被查
 
-来源：<code>map.read.clwdix.cn/Article/details/31711.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/08947.shtml</code>
 
-### 盐城司法局称“政府五年无败诉”，随后迅速删文并拒绝置评
+### 这家航司未来四年内机队将变为清一色国产飞机C919
 
-来源：<code>map.read.jbttgb.cn/Article/details/927220.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5435295.shtml</code>
 
-### 中央纪委就此事在一年内问责超过200名“一把手
+### 南京公积金发布新政：南京都市圈9城公积金互认互贷
 
-来源：<code>map.read.jbttgb.cn/Article/details/11934.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8148337.shtml</code>
 
-### 戴琪称涉及3000多亿美元中国商品的问题近期将得出结果
+### 韩媒爆料：孙准浩于25日被释放返回韩国
 
-来源：<code>map.read.jbttgb.cn/Article/details/9432.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5608794.shtml</code>
 
 ## 三、科技产业
 
-### 西安地铁在建10号线试验段发生事故，致1死2伤
+### 烟台威海遭遇极端性冷流暴雪，网友：宛如北极科考！
 
-来源：<code>map.read.jbttgb.cn/Article/details/511363.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4172951.shtml</code>
 
-### 南部战区就菲方组织“联合空中巡逻”一事作出回应
+### 现场 | 美国总统拜登会见王毅
 
-来源：<code>map.read.jbttgb.cn/Article/details/85998.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/05257.shtml</code>
 
-### 张晓明被免去全国政协副秘书长职务
+### 江苏武进一企业因粉尘爆炸致8死8伤
 
-来源：<code>map.read.clwdix.cn/Article/details/38591.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/27676.shtml</code>
 
-### 猎狐行动”首次从摩洛哥将犯罪嫌疑人引渡回国
+### 国防部：落实中美两国元首共识 推动两军关系稳定发展
 
-来源：<code>map.read.clwdix.cn/Article/details/205235.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7626905.shtml</code>
 
-### 最高法调研“连坐”规定，强调非必要不限制犯罪人亲属权利
+### 山西太原市清徐县发生3.7级地震，震源深度28千米
 
-来源：<code>map.read.clwdix.cn/Article/details/96872.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/05412.shtml</code>
 
-### 卸任7年后被查，他主动向组织交代自身问题
+### “80后”神十八乘组亮相！简历来了
 
-来源：<code>map.read.clwdix.cn/Article/details/76201.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/21946.shtml</code>
 
-### 前“明星基金经理”蔡嵩松成为被告人，曾管理超400亿元资金
+### 李云泽：有信心、有条件、有能力维护国家金融安全
 
-来源：<code>map.read.clwdix.cn/Article/details/87732.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/251255.shtml</code>
 
-### 南方小土豆”受宠若惊，哈尔滨为何突然走红？
+### CBA裁判再成焦点，浙江队球员赛后向记录台抗议
 
-来源：<code>map.read.jbttgb.cn/Article/details/43359.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/3236.shtml</code>
 
-### 尹锡悦访英前发表对华强硬言论，其意图引发关注
+### 证监会“一把手”吴清，再有新动作
 
-来源：<code>map.read.clwdix.cn/Article/details/644598.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/3910606.shtml</code>
 
-### 美媒报道谷爱凌计划继续代表中国出战2026年冬奥会
+### 湖南省委下发通知，在全省开展解放思想大讨论
 
-来源：<code>map.read.jbttgb.cn/Article/details/190085.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/173207.shtml</code>
 
-### 北方气温起伏明显，南方大部持续回暖
+### 卸任全国政协副秘书长后，张晓明辞去全国政协委员
 
-来源：<code>map.read.jbttgb.cn/Article/details/358902.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/85840.shtml</code>
 
-### 潘功胜：中美货币政策“周期差”2024年将收窄，为我国政策操作留出更大空间
+### “高效办成一件事”这份文件将带来哪些便利？
 
-来源：<code>map.read.jbttgb.cn/Article/details/6248.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/911731.shtml</code>
 
-### 手机5G开关被隐藏？运营商回应外界关切
+### 最高气温将升至40℃以上 河南继续发布高温橙色预警
 
-来源：<code>map.read.clwdix.cn/Article/details/69173.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5372222.shtml</code>
 
-### 马斯克称中国人才超越美国，并预言大陆必将统一台湾
+### 38.9亿元！恒大地产等公司被强制执行
 
-来源：<code>map.read.jbttgb.cn/Article/details/1212.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/74159.shtml</code>
 
-### 迈阿密国际主帅确认梅西因伤将缺席比赛
+### 4月公募FOF最高收益率超4% 养老目标基金表现优异
 
-来源：<code>map.read.jbttgb.cn/Article/details/9180.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/80597.shtml</code>
 
-### 昔日“步行街之王”卖房自救，转战千元羽绒服市场
+### 我国正研制4米级、5米级可重复使用火箭
 
-来源：<code>map.read.clwdix.cn/Article/details/763286.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/968024.shtml</code>
 
-### 黄坤明、王伟中率省委常委班子再赴外地，此行有特别考量
+### 31省份2023年人均收入出炉！京沪首进“8万+”，西藏涨最快
 
-来源：<code>map.read.clwdix.cn/Article/details/66283.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/94547.shtml</code>
 
-### 陈春江被任命为陕西省副省长
+### 一中国游客在南非伊丽莎白港潜水后身亡
 
-来源：<code>map.read.clwdix.cn/Article/details/891619.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/167572.shtml</code>
 
-### 澳方官员称中方管控致其处境脆弱
+### 台飞行员“宁赔300万也要走！”
 
-来源：<code>map.read.clwdix.cn/Article/details/233230.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/539320.shtml</code>
 
-### 周军因隐瞒入党前重大错误被开除党籍和公职
+### 端午小长假前夜火车票今开抢，三个技巧增加购票成功概率
 
-来源：<code>map.read.jbttgb.cn/Article/details/24551.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6954.shtml</code>
 
-### 中基健康去年净利润突破亿元大关，同比增幅高达314.94%
+### 中国驻美大使：使馆坚决维护旅美同胞正当合法权益
 
-来源：<code>map.read.clwdix.cn/Article/details/0937.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/98963.shtml</code>
 
-### 中央通报将工作群每周公布“学习强国”积分末六名列为形式主义典型案例
+### 女子给网店“刷单”却拿不回钱？法院：法律不保护虚假交易
 
-来源：<code>map.read.clwdix.cn/Article/details/9026049.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5371.shtml</code>
 
-### 广西龙州发生楼房坍塌事故，被困人员当前情况尚不明确
+### 国防部回应“美台勾连”：在台湾问题上，我们的政策是“三个永远”
 
-来源：<code>map.read.jbttgb.cn/Article/details/9317723.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6802.shtml</code>
 
-### 郑栅洁表示，宏观政策力度还将继续加码
+### 网传海南楼市政策“松绑”？当地住建厅回应
 
-来源：<code>map.read.clwdix.cn/Article/details/2098964.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2659.shtml</code>
 
-### 73岁实际控制人被立案调查，深交所这家老牌企业面临退市风险
+### 陈明国履新，曾是最年轻省级高院院长
 
-来源：<code>map.read.jbttgb.cn/Article/details/596467.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/17780.shtml</code>
 
-### 媒体称新开源低价定增被否决，实控人若按市价增持同样可加固控制权
+### 多地厅级干部参加马拉松，有位正厅级干部全马跑进3小时
 
-来源：<code>map.read.clwdix.cn/Article/details/8446075.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7105.shtml</code>
 
-### 台媒报道，花莲因强震抬升45厘米，台湾地区地表发生位移
+### 华南理工大学学者首次实验发现磁霍普夫子
 
-来源：<code>map.read.clwdix.cn/Article/details/6646.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/045236.shtml</code>
 
-### 中方代表强调红线不容逾越
+### 岳修虎已任公安部党委委员、反恐专员
 
-来源：<code>map.read.jbttgb.cn/Article/details/58977.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/31601.shtml</code>
 
-### 国防部指出，中方在南海问题上不会容忍菲方任意妄为
+### 迈阿密国际主帅：梅西因伤未登场
 
-来源：<code>map.read.clwdix.cn/Article/details/5078433.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/9434.shtml</code>
 
-### 超半数省会城市GDP数据出炉：杭州超越武汉，呼和浩特以10%增速领跑
+### 应急管理部：全国集中组织开展电动自行车夜查行动
 
-来源：<code>map.read.jbttgb.cn/Article/details/5371.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/676837.shtml</code>
 
-### 山东煤矿事故8名被困者全部找到，其中3人已无生命体征
+### 寒潮、暴雪、大风三预警齐发，这些地区将迎“速冻”模式
 
-来源：<code>map.read.clwdix.cn/Article/details/8078381.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/427496.shtml</code>
 
-### 广汽科技日宣布两年内推出无图智驾与全固态电池，实际成色如何受关注
+### 克林斯曼：我从来没有接到过出任中国男足主帅的邀请
 
-来源：<code>map.read.jbttgb.cn/Article/details/9076872.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/841852.shtml</code>
 
-### 台湾发生7.3级地震：花莲虽频发地震，但此次震感前所未有
+### 靳东任中国煤矿文工团团长后首次亮相
 
-来源：<code>map.read.clwdix.cn/Article/details/5732349.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/90581.shtml</code>
 
-### 英首相苏纳克称中国为威权国家，中国使馆对此予以驳斥
+### 四川成都“6·11”四死一伤交通事故调查报告公布
 
-来源：<code>map.read.clwdix.cn/Article/details/385928.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/144762.shtml</code>
 
-### 仇开明新任中共中央台办副主任
+### 恒大汽车引入纽顿集团彻底终止
 
-来源：<code>map.read.jbttgb.cn/Article/details/6127.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1027.shtml</code>
 
-### 31省份2023年人均收入公布：京沪首超8万元，西藏增速居首
+### 金价再飙！有望突破3000美元 港股黄金股集体上扬
 
-来源：<code>map.read.clwdix.cn/Article/details/21134.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6722067.shtml</code>
 
-### A股走出深V反转行情，百亿资金趁机入场抄底，公募基金最新研判后市
+### 合肥取消限价后再拍3宗地：揽金约31.8亿元
 
-来源：<code>map.read.clwdix.cn/Article/details/8822685.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/374470.shtml</code>
 
-### 登陆港股逾八年后，锦州银行今日正式宣告退市
+### 8户央企外部董事职务变动
 
-来源：<code>map.read.clwdix.cn/Article/details/44904.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0181.shtml</code>
 
-### 英烈遗骸归国，八个感人细节令人动容落泪
+### 国家安全部披露一起泄露反间谍工作国家秘密案件
 
-来源：<code>map.read.clwdix.cn/Article/details/76693.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/476405.shtml</code>
 
-### 春节档总票房突破24亿，《热辣滚烫》和《飞驰人生2》各自超7亿
+### 郑栅洁：宏观经济政策会继续加强
 
-来源：<code>map.read.clwdix.cn/Article/details/65576.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/110112.shtml</code>
 
 ## 四、国际热点
 
-### 中央督察组指出，部分地方部门对青海“生态优先”理念仍停留在口头上
+### 国家安全部披露：男子冒充国安干警行骗获刑十年半
 
-来源：<code>map.read.jbttgb.cn/Article/details/19759.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/60370.shtml</code>
 
-### 媒体评中国足球职业联赛新政：先解当下之急，再谋长远之策
+### 今年“首虎”钟自然，被开除党籍
 
-来源：<code>map.read.clwdix.cn/Article/details/03175.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/6898.shtml</code>
 
-### 国台办强烈谴责台方驱离福建渔船致两名渔民遇难
+### “毫米级”精准合龙！常泰长江大桥全线贯通
 
-来源：<code>map.read.jbttgb.cn/Article/details/0473.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1554506.shtml</code>
 
-### 四川一“影帝级”贪官腐败细节曝光：视下属为家臣，每日受贿数额惊人
+### 辞职5年后落马的“老虎”，骗取博士学位！
 
-来源：<code>map.read.clwdix.cn/Article/details/051833.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/82958.shtml</code>
 
-### 茅台任职时间最短的董事长贪腐逾亿元，为掩人耳目竟对妻哥模拟审讯演练
+### 央行行长：将于2月5日下调存款准备金率0.5个百分点
 
-来源：<code>map.read.jbttgb.cn/Article/details/8625251.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/35425.shtml</code>
 
-### 中央纪委内设机构点名通报四名“内鬼”，释放出反腐新信号
+### 今年高考又又又又下雨 真有高考下雨“魔咒”？
 
-来源：<code>map.read.jbttgb.cn/Article/details/273355.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/523195.shtml</code>
 
-### 85后"女副市长麻丽敏拟任新职
+### 指数尾盘全线翻红，沪指重回2800点，创业板指涨近2%，权重股集体走强
 
-来源：<code>map.read.clwdix.cn/Article/details/5391089.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/565175.shtml</code>
 
-### 董军防长对“台独”发出严厉警告，台媒广泛报道，岛内学者呼吁赖清德正视
+### 昔日“步行街之王”卖房求生，还押“宝”千元羽绒服
 
-来源：<code>map.read.jbttgb.cn/Article/details/5555.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/73954.shtml</code>
 
-### 省会城市推新政：购房可享“无理由退货”政策
+### 孙颖莎、王艺迪均失手，谁把中国女乒惊出一身冷汗？
 
-来源：<code>map.read.jbttgb.cn/Article/details/8888.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0648679.shtml</code>
 
-### 又一批外企高管密集访华，此行主要探讨哪些议题
+### 关于肺炎支原体感染的热点问题，专家为您详细解答
 
-来源：<code>map.read.jbttgb.cn/Article/details/46952.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/554994.shtml</code>
 
-### 事故调查结果公布：煤矿致2死2伤，多名责任人被追责
+### 福建三明市尤溪县发生3.5级地震，震源深度8千米
 
-来源：<code>map.read.jbttgb.cn/Article/details/2286832.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8325507.shtml</code>
 
-### 马树山案经历重大转折，法律权威得到有力彰显
+### 内蒙古乌兰察布一高速路面塌陷：4车坠落致2死4伤
 
-来源：<code>map.read.jbttgb.cn/Article/details/485999.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/99354.shtml</code>
 
-### 中国公路养护资金缺口巨大，每年短缺达3000亿元
+### 要不要带走野外用过的厕纸？“手纸之争”吵上热搜
 
-来源：<code>map.read.clwdix.cn/Article/details/4567248.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/821117.shtml</code>
 
-### 南京多家燃气公司回应市民疑问：燃气计费是否存在问题
+### 中美气候行动工作组启动会顺利召开
 
-来源：<code>map.read.clwdix.cn/Article/details/4717415.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/14312.shtml</code>
 
-### 春晚前夕，多位省委书记赴分会场实地考察筹备进展
+### 何立峰除夕通过视频查看这一情况后，省长大年初一再提要求
 
-来源：<code>map.read.jbttgb.cn/Article/details/4510.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7925.shtml</code>
 
-### 沙特阿拉伯正与中方就一巨型项目洽谈合作
+### 截至2023年12月末 我国外汇储备规模为32380亿美元
 
-来源：<code>map.read.jbttgb.cn/Article/details/898485.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/694081.shtml</code>
 
-### 何立峰会见美国财政部副部长尚博一行
+### 泉州市长回应“2·14”恶性撞船事件：极其愤慨
 
-来源：<code>map.read.jbttgb.cn/Article/details/574212.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/97195.shtml</code>
 
-### 大连沙河口区一舞厅发生纵火案，致1死3伤
+### 已调离江西的中央候补委员吴浩，赴中组部任职
 
-来源：<code>map.read.clwdix.cn/Article/details/2291.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/678393.shtml</code>
 
-### 又一座特大城市正式宣告诞生
+### 证监会新闻发言人就股票质押有关情况答记者问
 
-来源：<code>map.read.clwdix.cn/Article/details/317346.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5437.shtml</code>
 
-### 北斗系统获准在全球民用航空领域推广应用
+### 足坛腐败大起底：那些不为人知的潜规则
 
-来源：<code>map.read.jbttgb.cn/Article/details/0185.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/63012.shtml</code>
 
-### 江苏南通连续四任市公安局局长相继被查
+### 针对中国，美国务院成立小组为他国“出谋划策”
 
-来源：<code>map.read.clwdix.cn/Article/details/69690.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/98590.shtml</code>
 
-### 贵州省纪委副书记张平接受纪律审查和监察调查
+### 经两轮角逐 中国国民党民代江启臣当选台“立法院副院长”
 
-来源：<code>map.read.jbttgb.cn/Article/details/95812.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/85943.shtml</code>
 
-### 春节假期首日旅游订单同比增长102%，超过2019年同期
+### 工业第四城，突然不“能打”了？
 
-来源：<code>map.read.jbttgb.cn/Article/details/1676193.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/291936.shtml</code>
 
-### 将市值管理与央企负责人业绩考核挂钩，这一方案是否切实可行
+### 广东：广州、深圳进一步放宽小汽车购买指标申请资格
 
-来源：<code>map.read.jbttgb.cn/Article/details/304710.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4758.shtml</code>
 
-### 现场视频显示解放军在中缅边境演训，具体涉及哪些区域
+### 多家房企被点名，延期发布财报，交易所公开谴责
 
-来源：<code>map.read.clwdix.cn/Article/details/0287187.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0315.shtml</code>
 
-### 越媒称中方愿协助升级广西至河内铁路，外交部就此作出回应
+### 冰冻橙色预警首次拉响！南方冻雨影响时间将从2月1日持续到4日
 
-来源：<code>map.read.clwdix.cn/Article/details/429078.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7143.shtml</code>
 
-### 中国足协启动女足国家队主教练公开选聘程序
+### 中国被孤立了吗？美西方对华态度为何骤变？专家解析
 
-来源：<code>map.read.jbttgb.cn/Article/details/682943.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4507683.shtml</code>
 
-### 暴雪预警升至橙色，本轮雨雪冰冻天气将进入最强时段
+### 李强已任中央金融委员会主任
 
-来源：<code>map.read.jbttgb.cn/Article/details/128979.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8727.shtml</code>
 
-### 德媒称意大利总理梅洛尼正对北京展开魅力外交攻势
+### 中国人民解放军信息支援部队成立大会在京举行 习近平向信息支援部队授予军旗并致训词
 
-来源：<code>map.read.jbttgb.cn/Article/details/73444.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/404469.shtml</code>
 
-### 南方升温，华北黄淮雾霾来袭，冷空气将伴随跨年到来
+### 姚振华或被拘留？法院回应：正在核实中
 
-来源：<code>map.read.jbttgb.cn/Article/details/9816966.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/3266597.shtml</code>
 
-### 国务院强调需强化大宗商品、冷链及农村物流等薄弱环节建设
+### 吴海涛任湖北省委常委、秘书长
 
-来源：<code>map.read.clwdix.cn/Article/details/3624658.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5654009.shtml</code>
 
-### 中国海警发布照片中出现金门岛，专家指其与2022年“军舰与宝岛同框照”存三处相似点
+### 中国海警舰艇编队1月11日在我钓鱼岛领海巡航
 
-来源：<code>map.read.jbttgb.cn/Article/details/5367.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/90188.shtml</code>
 
-### 中国海警推出新法规，菲律宾缘何对此产生忧虑
+### 多数存量房贷利率明年1月将小幅下调
 
-来源：<code>map.read.clwdix.cn/Article/details/019761.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/63289.shtml</code>
 
-### 神舟十七号乘组计划于近日执行第二次出舱活动
+### 国产首艘大型邮轮启航 开启试运营航次
 
-来源：<code>map.read.jbttgb.cn/Article/details/3194.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/28937.shtml</code>
 
-### 曹县汉服走热背后：电商崛起、青年返乡与营商环境的持续改善
+### 百岁基辛格飘然而去，中国人为何有“基辛格情结”？
 
-来源：<code>map.read.jbttgb.cn/Article/details/631316.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8109546.shtml</code>
 
-### 美国驻日大使表态称，美国需对中国展现强硬立场
+### 预缴养老床位费，每月还赚钱？北京判决一起集资诈骗案
 
-来源：<code>map.read.clwdix.cn/Article/details/144284.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/73563.shtml</code>
 
-### 江西省建材集团原纪委书记熊小华被开除党籍
+### 柯文哲推“黄珊珊选”是暗助韩？韩国瑜本人回应了
 
-来源：<code>map.read.clwdix.cn/Article/details/5191.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/8667531.shtml</code>
 
-### 龙年首个A股交易日迎开门红，三大股指集体高开
+### 蔡英文办公室一卫兵举枪自戕身亡，台媒曝光现场画面
 
-来源：<code>map.read.jbttgb.cn/Article/details/817370.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/48820.shtml</code>
 
-### 著名马克思主义哲学家、北大社会发展研究所原所长易杰雄逝世
+### 张国清南下，抵达当晚有一个特殊行程
 
-来源：<code>map.read.jbttgb.cn/Article/details/93685.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/876254.shtml</code>
 
-### 中东部雨雪过程进入最强时段，南方多地气温将出现剧烈下滑
+### 高考期间，华北高温、南方强降雨，这些地方要注意
 
-来源：<code>map.read.clwdix.cn/Article/details/03704.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/78639.shtml</code>
 
 ## 五、文体娱乐
 
-### 新规出炉：基金经理不得随意跳槽及公开炫富
+### A股21家银行谁最高薪？这10家“反向讨薪”近亿元
 
-来源：<code>map.read.jbttgb.cn/Article/details/4252577.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0200973.shtml</code>
 
-### 台防务部门称解放军军机对台岛形成“三面包夹”态势
+### 杀“独”神器如何多方向抵近台岛？军事专家解读
 
-来源：<code>map.read.jbttgb.cn/Article/details/8230687.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/61467.shtml</code>
 
-### 2023年前11个月全国实际使用外资金额达1.04万亿元
+### 外交部：当前南海局势总体稳定
 
-来源：<code>map.read.clwdix.cn/Article/details/37486.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/25152.shtml</code>
 
-### 央行表示将加快推动《金融稳定法》与《反洗钱法》立法进程
+### 检察机关依法对李再勇涉嫌受贿、滥用职权案提起公诉
 
-来源：<code>map.read.clwdix.cn/Article/details/6060781.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/699928.shtml</code>
 
-### 据台媒报道，诗人余光中夫人辞世，享寿92岁
+### 曾赞荣同志任青岛市委书记
 
-来源：<code>map.read.clwdix.cn/Article/details/790375.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/649387.shtml</code>
 
-### 日媒称一名日本男子在湖南省高院被判刑，外交部回应此事
+### 乌克兰采取新措施催促男性公民回国参军
 
-来源：<code>map.read.clwdix.cn/Article/details/9412134.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/40983.shtml</code>
 
-### 中东部雨雪天气还将增强，南方湿冷或持续至3月初
+### 何以法治｜备案审查再出发：将立法权和文件制定权关进制度笼子
 
-来源：<code>map.read.jbttgb.cn/Article/details/1794460.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2574398.shtml</code>
 
-### 外交部通报德国总理朔尔茨将访华，中德同意继续深化战略沟通
+### 塔克拉玛干沙漠下雪了！“王炸”级寒潮来袭，广东网友：一夜短袖变羽绒服
 
-来源：<code>map.read.jbttgb.cn/Article/details/1858.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1463110.shtml</code>
 
-### 儿科就诊高峰何时缓解？专家给出最新预判
+### 四川一“影帝贪官”贪腐细节曝光：把下属当“家臣”！每天受贿金额触目惊心
 
-来源：<code>map.read.clwdix.cn/Article/details/6355661.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/0822369.shtml</code>
 
-### 广州房票全市通用，可转让但仅限一次
+### 谁杀了我5名中国人？巴铁的指控，信息量很大
 
-来源：<code>map.read.jbttgb.cn/Article/details/06695.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/133046.shtml</code>
 
-### 中央纪委本周末再发布反腐消息
+### 又有两家券商调整两融负债偿还规则 今日生效
 
-来源：<code>map.read.jbttgb.cn/Article/details/223644.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/696858.shtml</code>
 
-### 2024年各省份两会召开时间陆续公布，多集中在1月中下旬
+### 履新中央金融办主任后，何立峰在这一重要活动上发声
 
-来源：<code>map.read.clwdix.cn/Article/details/4057.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2268.shtml</code>
 
-### 春运车票已售超六千万张，铁路部门将严打恶意抢票软件
+### 全国首部区域性投资者保护条例在深圳出台
 
-来源：<code>map.read.jbttgb.cn/Article/details/0536729.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7250379.shtml</code>
 
-### 历经八年争议，国民党156亿新台币党产最终被民进党当局全数没收
+### 大参林瞒报实控人之一被刑拘后续：子公司一审被判行贿
 
-来源：<code>map.read.jbttgb.cn/Article/details/7869.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1848494.shtml</code>
 
-### 受雨雪冰冻影响，京沪高铁等部分线路列车将停运
+### 六大国有行，重磅表态！
 
-来源：<code>map.read.clwdix.cn/Article/details/3625552.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/13397.shtml</code>
 
-### 杭州城区人口突破千万，正式成为全国第十个超大城市
+### 外交部介绍王毅与伊朗外长通话细节
 
-来源：<code>map.read.jbttgb.cn/Article/details/489558.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/60516.shtml</code>
 
-### 王毅表示，中俄树立了大国关系的新型范式
+### “绿化将军”张连印病逝
 
-来源：<code>map.read.clwdix.cn/Article/details/203365.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/48314.shtml</code>
 
-### 菲律宾海警船故意冲撞中方舰艇，专家称菲方行为接近准军事化
+### 中国足协与水庆霞解约 水庆霞正式卸任中国女足主教练
 
-来源：<code>map.read.jbttgb.cn/Article/details/00710.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/35232.shtml</code>
 
-### 五一假期高速公路部分路段及收费站或出现拥堵
+### 又针对钓鱼岛搞事！日本向西南方向增兵
 
-来源：<code>map.read.clwdix.cn/Article/details/9803.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/470901.shtml</code>
 
-### 南部战区海空力量在南海执行例行巡航，保持全天候高度戒备
+### 被执行748万，汪小菲回应！张兰：恶人都是先告状
 
-来源：<code>map.read.jbttgb.cn/Article/details/276988.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/822976.shtml</code>
 
-### 2024年首轮寒潮来袭，多地迎来暴雪天气
+### 各地高考查分时间汇总来了
 
-来源：<code>map.read.jbttgb.cn/Article/details/225353.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2384.shtml</code>
 
-### 中国在联合国大会严正驳斥有关国家涉南海不当言论
+### 日媒：西方军工业制造弹药缺钨，又提“依赖中国”
 
-来源：<code>map.read.clwdix.cn/Article/details/459822.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5020529.shtml</code>
 
-### 湖南省政协原副主席易鹏飞因受贿及滥用职权一审被判刑
+### 西安外国语大学原校长王军哲被查，卸任后校长空缺已3年
 
-来源：<code>map.read.jbttgb.cn/Article/details/78430.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/91897.shtml</code>
 
-### 美国宣布解除对中国公安部鉴定中心的制裁
+### 新方案发布 支持浦东新区高水平改革开放
 
-来源：<code>map.read.clwdix.cn/Article/details/4079334.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/9086418.shtml</code>
 
-### 益佰制药因违规生产药品，公司及责任人被罚逾820万元
+### 夏冰已经出任国家数据局副局长
 
-来源：<code>map.read.jbttgb.cn/Article/details/0476.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/7964030.shtml</code>
 
-### 美加军舰穿越台湾海峡，东部战区予以回应
+### 证监系统任职28年 期货业协会会长安青松被带走
 
-来源：<code>map.read.jbttgb.cn/Article/details/2608065.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/20314.shtml</code>
 
-### 齐家滨就任中央组织部副部长
+### 专访男足主教练扬科维奇：专注自身迎接亚洲杯挑战
 
-来源：<code>map.read.jbttgb.cn/Article/details/675653.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2679.shtml</code>
 
-### 孙兴慜被指挑衅中国球迷引发热议，两队主帅赛后均发声
+### 拜登称不会对中国补贴电动汽车坐视不管，外交部：将坚决维权
 
-来源：<code>map.read.clwdix.cn/Article/details/9875539.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/69188.shtml</code>
 
-### 西藏自治区政府党组成员、副主席王勇正接受审查调查
+### 王沪宁赴南京，出席重要会议
 
-来源：<code>map.read.jbttgb.cn/Article/details/01356.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1132846.shtml</code>
 
-### 中央政法委秘书长赴浙江调研，强调“强化反腐惩处力度”释放明确信号
+### 中央经济工作会议，回答六个关于中国经济的重要问题
 
-来源：<code>map.read.clwdix.cn/Article/details/2191.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/5495.shtml</code>
 
-### 66岁的左锁粉一审获刑14年
+### 西陇科学称未生产光刻胶 股价昨跌7.75%
 
-来源：<code>map.read.jbttgb.cn/Article/details/4318.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/010621.shtml</code>
 
-### 针对无偿献血人数下降及血液制品出口传闻，官方发布澄清说明
+### 今冬最强寒潮下，北方暴雪中列车“不停地被取消”，南方气温将坐“过山车”
 
-来源：<code>map.read.jbttgb.cn/Article/details/259728.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/00814.shtml</code>
 
-### 人社部宣布：2024年退休人员基本养老金上调3%
+### 苏州一高架道路结冰多车相撞 有人员受伤
 
-来源：<code>map.read.jbttgb.cn/Article/details/150706.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4775011.shtml</code>
 
-### 中国驻英使馆批评英方对5家中企实施制裁，称此举“加剧紧张
+### 医药反腐深入医保领域，多名省级医保官员相继被查
 
-来源：<code>map.read.clwdix.cn/Article/details/312939.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/2857.shtml</code>
 
-### 调查显示新能源车消费转向：品牌影响减弱，性价比成首要因素
+### 湖南省省长毛伟明3天内2次开会部署，为何事？
 
-来源：<code>map.read.jbttgb.cn/Article/details/92985.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/4313.shtml</code>
 
-### 全国超20省份遭遇严寒，冷冻地图发布，多地冷如冰箱
+### 深圳新房“以价换量”成常态 折扣低至八五折
 
-来源：<code>map.read.jbttgb.cn/Article/details/049963.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/9946.shtml</code>
 
-### MCN机构就“点读机女孩”旧视频事件公开致歉
+### 受雨雪冰冻影响，铁路部门计划停运京沪高铁等部分线路列车
 
-来源：<code>map.read.clwdix.cn/Article/details/638766.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/96304.shtml</code>
 
-### 何立峰在重要场合会见对方，三个细节引人关注
+### 日本2024财年防卫预算创历史新高，中方回应
 
-来源：<code>map.read.clwdix.cn/Article/details/370126.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/9565472.shtml</code>
 
-### 中国福彩中心回应多地自助彩票机停用一事
+### 美国航司大规模取消中美航班？真相其实是这样
 
-来源：<code>map.read.clwdix.cn/Article/details/7331242.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/1874364.shtml</code>
 
-### 神十八“80后”航天员乘组首次亮相，简历同步公布
+### “纸面服刑”的杀人犯：36年后再杀人被判死刑
 
-来源：<code>map.read.jbttgb.cn/Article/details/2590.shtml</code>
+来源：<code>h5.baike.pwgim.cn/Article/41410.shtml</code>
 
 ## **AI Builders Digest** | 每日06:00自动播报 | 数据来源：新浪财经、公开媒体报道
 
-*报告生成时间：2026年07月09日21时59分49秒*
+*报告生成时间：2026年07月13日00时47分26秒*
 
 *数据来源：新浪财经、公开媒体报道*
